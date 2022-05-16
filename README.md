@@ -7,4 +7,3 @@ Hi, I’m @AnastasiyaLazarenka
 ⚡ Fun fact: I do not eat meat
 
 📫 How to reach me Anastasiya Lazarenka#7815 and @nastyalaz007
--->
